@@ -33,6 +33,10 @@ Read In: 2 hours, 40 minutes
 
 ## History
 
+### Mar 24th, 2020 - Megan's Apartment
+
+Attempted a half recipe of this, it did not work. Bread was too dense. Could have proved more or in a warmer place.
+
 ### Jan 9th, 2019 - Marquardt House
 
 Unemployed with plenty of time on my hands, time to try the recipe for the first time! This was the original recipe, no modifications.
