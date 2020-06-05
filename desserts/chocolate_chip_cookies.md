@@ -31,5 +31,5 @@ Cookies will bake for about 15 minutes total. Bake for ~13 minutes in the prehea
 
 Let cool on a baking rack for a few minutes.
 
-Pair with vanilla ice cream.
+Pair with french vanilla ice cream.
 
